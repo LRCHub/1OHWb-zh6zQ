@@ -1,0 +1,45 @@
+# Cö shu Nie – Hollow
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+匿い続けた 風船の中で
+歪に膨らむ 虚になってく
+Hollow
+Sorrow
+浴びせられた毒が焦げつくにおい
+とけた感情も骨もビロードのはきだめ
+爛れた身体から溢れ落ちてく
+Going insane 失っていくだけ
+Crawling inside 飲み込まれていくだけ
+Going insane すべて消して跡形なく
+繕い傷だらけ
+こわばった愛も
+生温いフィラメントも
+編みかけの翅も
+踏み潰される前に
+朽ちた瞼は何も隠してくれない
+目線もくれず通り過ぎてく顔も
+澱む天井の重さ 誰か 誰か
+Going insane 失っていくだけ
+Crawling inside 飲み込まれていくだけ
+So I’ve been lied
+どうして どうして 産まれてきた
+十分もう待った
+Obsession in me
+Take it and go, alone
+Escape this body
+Please make me fade alone
+Desire in me
+Shut in the door, alone
+Will it make me suffer?
+Will it save me if I go out of this door?
+Going insane 失っていくだけ
+Crawling inside 飲み込まれていくだけ
+それならこの手にあるものは何だ
+ただひとつ 握りしめたHollow
+匿い続けた 風船の糸を
+手放してもまだ まとわりついた
+やつれた指先 世界に触れたい
+再生紙のような夜明けを光らせ生きてく
+```
